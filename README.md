@@ -1,4 +1,5 @@
-![IMG_0031](https://github.com/user-attachments/assets/93d365c2-08f0-43bd-b885-f1bda0b50c9d)
+![![بدون اسم5_20250515005152](https://github.com/user-attachments/assets/421138bc-b637-4fb8-a799-bc6b4bea5ad3)
+IMG_0031](https://github.com/user-attachments/assets/93d365c2-08f0-43bd-b885-f1bda0b50c9d)
 Amy Rose (エミー・ローズ, Emī Rōzu?), also formerly known as Rosy the Rascal (ロージー・ザ・ラスカル, Rōjī za Rasukaru?), is a character that appears in the Sonic the Hedgehog series. She is an anthropomorphic pink hedgehog with a crush on Sonic the Hedgehog. Since meeting Sonic on Little Planet, Amy has declared herself his girlfriend and has attempted to win his heart by any means in many of their adventures. She wields the Piko Piko Hammer, which she uses with skills second to none and never leaves home without.[16]
 
 Amy is a cheerful, though slightly erratic girl, with a positive attitude and nature and boundless energy. However, she has a fiery temper and her infatuation with Sonic makes her short-sighted and a bit obsessive about him, having followed him everywhere since meeting him. Nevertheless, she has a pure heart and will not let anything stop her.![IMG_0032](https://github.com/user-attachments/assets/b7a51e70-8304-4ee0-9576-c1d4e1e77fe9)
