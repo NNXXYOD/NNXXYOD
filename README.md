@@ -1,10 +1,10 @@
-[image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Troll us in skins, you'll only get hidden dumbass lmaoprofiles !
+![image](https://github.com/user-attachments/assets/cab77247-7291-480a-8aed-64c0a2dedec5)
+Troll us in skins, you'll only get hidden dumbass lmaoprofiles !
 welcome to my docs ! here, you can find the profiles + bios i made. credits aren't needed but appreciated ! do not repost or claim my work to be yours. that's really all ! pls enjoy using these, have fun !!
 disclaimers ;
 1 widgets, images, etc do not belong to me unless stated they do
 2 this doc is a wip !
 3 some bios may look off depending on your device so just adjust it to your liking !![image](https://github.com/user-attachments/assets/30f9d01a-5e8e-49bc-a4c3-54a46fa78928)
-
 
 𝓪 𝓫 𝓬 𝓭 𝓮 𝓯 𝓰 𝓱 𝓲 𝓳 𝓴 𝓵 𝓶 𝓷 𝓸 𝓹 𝓺 𝓻 𝓼 𝓽 𝓾 𝓿 𝔀 𝔁 𝔂 𝔃
 𝓐 𝓑 𝓒 𝓓 𝓔 𝓕 𝓖 𝓗 𝓘 𝓙 𝓚 𝓛 𝓜 𝓝 𝓞 𝓟 𝓠 𝓡 𝓢 𝓣 𝓤 𝓥 𝓦 𝓧 𝓨 𝓩
