@@ -1,4 +1,4 @@
-  profiles !
+[image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Troll us in skins, you'll only get hidden dumbass lmaoprofiles !
 welcome to my docs ! here, you can find the profiles + bios i made. credits aren't needed but appreciated ! do not repost or claim my work to be yours. that's really all ! pls enjoy using these, have fun !!
 disclaimers ;
 1 widgets, images, etc do not belong to me unless stated they do
