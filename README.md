@@ -1,4 +1,5 @@
-![بدون اسم29_20250520001243](https://github.com/user-attachments/assets/7b250747-729c-44b3-84ca-f480631edade)
+![بدون اسم38_20250522212411](https://github.com/user-attachments/assets/b1a11fa2-27c1-46d3-966b-e71098be42fa)
+
 ![image](https://github.com/user-attachments/assets/cab77247-7291-480a-8aed-64c0a2dedec5)
 Troll us in skins, you'll only get hidden dumbass lmaoprofiles !
 welcome to my docs ! here, you can find the profiles + bios i made. credits aren't needed but appreciated ! do not repost or claim my work to be yours. that's really all ! pls enjoy using these, have fun !!
