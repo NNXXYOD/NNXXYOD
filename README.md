@@ -1,7 +1,7 @@
 
 <p align="left"> $${\color{lightgreen}>>𝔸ℂℂ𝔼𝕊𝕊 \space 𝔾ℝ𝔸ℕ𝕋𝔼𝔻.}$$
 <p align="left"> $${\color{lightgreen}>>WELCOME.[OPERATOR] \space SORROWFUL.}$$
-<p align="center"> <img width="736" height="245" src="https://i.pinimg.com/originals/82/6a/ad/826aade42cfdb0eb4a7bd62afa6f9567.gif"> </p>
+<p align="center"> <img width="736" height="245" src=> </p>
 <p align="center"> <img width="298" height="299" src="ex=68200f1f&is=681ebd9f&hm=6558081709c3bcc1b223f1285860dc0f7711248e37b37dd12f3e399dff4157dc&=&format=webp&quality=lossless"> </p>
 <p align="center"> $${\color{lightgreen}Veliona'Vee'Goats.}$$
 <p align="center"> $${\color{lightgreen}​𝚃𝚊𝚔𝚎𝚗\space 𝚋𝚢\space 𝙼𝚘𝚗𝚘!}$$
