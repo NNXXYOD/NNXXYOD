@@ -1,4 +1,4 @@
-![بدون اسم38_20250522212411](https://github.com/user-attachments/assets/b1a11fa2-27c1-46d3-> >$${\color{lightgreen} 𝕊𝕀𝔾ℕ𝕀ℕ𝔾 \space 𝕀ℕ...}$$
+
 <p align="left"> $${\color{lightgreen}>>𝔸ℂℂ𝔼𝕊𝕊 \space 𝔾ℝ𝔸ℕ𝕋𝔼𝔻.}$$
 <p align="left"> $${\color{lightgreen}>>WELCOME.[OPERATOR] \space SORROWFUL.}$$
 <p align="center"> <img width="736" height="245" src="https://i.pinimg.com/originals/82/6a/ad/826aade42cfdb0eb4a7bd62afa6f9567.gif"> </p>
