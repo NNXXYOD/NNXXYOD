@@ -40,3 +40,5 @@ You've gotten so used to pretending and putting on a different persona that you 
 IF you relate to Furina, you re probably struggling to avoid making mistakes and often fake your confidence to get by You secretly battle with loneliness but keep it all inside. never opening up to anyone. You try to appear strong and untouchable, fiercely protecting the image you present to others. Jeep down, you deal with serious self esteem issues and are deeply concerned with how people see you.
 You find it hard to express your feelings of hopelessness and end up bottling everything up. Remember that you are worthy of love just as you are, and someday, someone will value you for your true self.
   ![image](https://github.com/user-attachments/assets/7ae693df-0989-46b0-88b8-391c99529c13)
+                                                                                                                   ![Image](https://github.com/user-attachments/assets/d5fd636f-e7be-491f-8d33-a2e3ba2ace96)
+ 
