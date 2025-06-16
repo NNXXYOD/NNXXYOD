@@ -1,7 +1,7 @@
 <h1 align="center">𓇼𓏲*ੈ✩‧₊˚🎐</h1>
 
 <p align="center">
-    <img width="300" src="![بدون اسم67_20250616062130](https://github.com/user-attachments/assets/373b2fd5-4c12-4355-bd05-862fbd600927)
+    <img width="300" src="[بدون اسم67_20250616062130](https://github.com/user-attachments/assets/373b2fd5-4c12-4355-bd05-862fbd600927)
 alt="Nilou image">
 </p>
  
