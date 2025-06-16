@@ -1,8 +1,7 @@
-<h1 align="center">𓇼𓏲*ੈ✩‧₊˚🎐</h1>
+<h1 align="center">˖°𓇼🌊⋆🐚🫧</h1>
 
-<p align="center">
-    <img width="300" src="[بدون اسم67_20250616062130](https://github.com/user-attachments/assets/373b2fd5-4c12-4355-bd05-862fbd600927)
-alt="Nilou image">
+<p![بدون اسم67_20250616062130](https://github.com/user-attachments/assets/bf5d0586-5cf7-45c7-b7f2-2e1d938583ae)
+
 </p>
  
 <p align="center">
