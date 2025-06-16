@@ -5,7 +5,7 @@
 
  
 <p align="center">
-✧  She / They !!  ; Minor !
+✧  She / They !!  ; Meow !
 </p>
 
 
