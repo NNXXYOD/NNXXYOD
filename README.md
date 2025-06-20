@@ -1,5 +1,6 @@
-<h1 align="center">˖°𓇼🌊⋆🐚🫧                                                                  
-<p![بدون اسم67_20250616062130](https://github.com/user-attachments/assets/bf5d0586-5cf7-45c7-b7f2-2e1d938583ae)
+<h1 align="center">˖°𓇼🌊⋆🐚🫧                                                        
+
+![بدون اسم67_20250616062130](https://github.com/user-attachments/assets/3f94c3ce-3211-40c5-bd82-a264244379ad)
 
 
  
