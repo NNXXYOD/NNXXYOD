@@ -3,14 +3,12 @@
 ![بدون اسم67_20250616062130](https://github.com/user-attachments/assets/3f94c3ce-3211-40c5-bd82-a264244379ad)
 
 
- 
-<p align="center">
-✧  She / They !!  ; Meow !
+ <p align="center">
+✧  She / They !!  ; Meow! !
 </p>
 
-
 <p align="center">
-✦ ⠀♡⠀₊All time favourites(RANKED): Aventurine,Ajaw, Focalors,Dottore,Beidou, Tighnari,Kinich,Scaramouche,Ratio,Xiao 
+✦ ! All time favourites(RANKED): Aventurine, Ajaw, Focalors, Dottore, Beidou,busy / Tighnari, Kinich, Scaramouche, Ratio, Xiao!
                                                                                              <p align="center">
 ──── ✩ ────
 </p>
