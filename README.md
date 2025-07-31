@@ -1,7 +1,8 @@
 <h1 align="center">𓇼𓏲*ੈ✩‧₊˚🎐</h1>
 
 <p align="center">
-    <img width="300" src="![IMG_1118](https://github.com/user-attachments/assets/917b9aee-636a-404f-b116-4ac31a900763)
+    <img width="300" src="![IMG_1118](https://github.com/user-attachments/assets/ebe11cd4-3801-4ff2-9fa9-b67dba76635f)
+
 " alt="Nilou image">
 </p>
  
