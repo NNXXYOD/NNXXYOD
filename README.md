@@ -1,7 +1,7 @@
 <h1 align="center">𓇼𓏲*ੈ✩‧₊˚🎐</h1>
 
 <p align="center">
-    <img width="300" src= "! [IMG_1118](https://github.com/user-attachments/assets/7d7c9390-47f4-4ccb-b8e1-fe433ae1c31c)
+    <img width="300" src=                "! [IMG_1118](https://github.com/user-attachments/assets/7d7c9390-47f4-4ccb-b8e1-fe433ae1c31c)
 
 
 " alt="furina image">
