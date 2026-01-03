@@ -1,6 +1,8 @@
 <h1 align="center">𓇼𓏲*ੈ✩‧₊˚🌊</h1>
 
-<img width="736" height="794" alt="بدون اسم286_20260103132838" src="https://github.com/user-attachments/assets/dc6133f8-7ff0-4658-a4cf-c4b34dbda189" />
+
+<img width="736" height="794" alt="بدون اسم286_20260103150504" src="https://github.com/user-attachments/assets/59297c5d-9ffc-4a83-8cbb-0614b14de0c5" />
+
 
 
 
