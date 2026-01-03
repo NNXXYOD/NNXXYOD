@@ -1,7 +1,7 @@
 <h1 align="center">𓇼𓏲*ੈ✩‧₊˚🌊</h1>
 
-<p align="center">
-    <img width="300" src=<img width=src=<img width="736" height="794" alt="image" src="https://github.com/user-attachments/assets/93b1a87d-ceb1-4976-8756-3720b0fb9223" />
+<img width="736" height="794" alt="بدون اسم286_20260103132838" src="https://github.com/user-attachments/assets/dc6133f8-7ff0-4658-a4cf-c4b34dbda189" />
+
 
 
 </p>
