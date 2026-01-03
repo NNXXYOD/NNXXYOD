@@ -1,7 +1,8 @@
-<h1 align="center">𓇼𓏲*ੈ✩‧₊˚🎐</h1>
+<h1 align="center">𓇼𓏲*ੈ✩‧₊˚🌊</h1>
 
 <p align="center">
-    <img width="300" src="https://s3.getstickerpack.com/storage/uploads/sticker-pack/genshin-impact-nilou/sticker_2.png?4d5298f4b254b36c673e13c39a7713c2" alt="Nilou image">
+    <img width="300" src=<img width="736" height="794" alt="بدون اسم286_20260103132838" src="https://github.com/user-attachments/assets/20fb0af3-a631-4fac-8a3e-8d051732cb6e" />
+
 </p>
  
 <p align="center">
