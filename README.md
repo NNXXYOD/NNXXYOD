@@ -1,34 +1,8 @@
 <h1 align="center">𓇼𓏲*ੈ✩‧₊˚🌊</h1>
 
 
-<img width="736" height="794" alt="بدون اسم286_20260103150504" src="https://github.com/user-attachments/assets/59297c5d-9ffc-4a83-8cbb-0614b14de0c5" />
+<img width="736" height="736" alt="Untitled395_20260509174020" src="https://github.com/user-attachments/assets/e553b9c5-f241-42e4-8ad4-46c72bb392dd" />
 
-
-
-
-</p>
- 
-<p align="center">
-✧  She / They !!  ; Minor !
-</p>
-
-<p align="center">
-✦ ! Please C+H ! i don't mind! oftb / busy / gaming most of the time!
-</p>
-
-<p align="center">
-──── ✩ ────
-</p>
-
-<p align="center">  
-Links!
-</p>
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎‎ ‎ ‎ ‎‎[Rentry!](https://rentry.co/dance-of-abzendegi)  ✩  ‎‎[Carrd!](https://lotus-eat3r.carrd.co/#) 𓇼 [Pronouns!!!](https://en.pronouns.page/@N1L0U)
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎  
-<p align="center">
-──── ✦ ────
-</p>
 
 
    
